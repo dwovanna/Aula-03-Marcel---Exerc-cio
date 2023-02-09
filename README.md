@@ -1,1 +1,1 @@
-# Aula-03-Marcel---Exerc-cio
+# Aula-03-Marcel---Exerccio
